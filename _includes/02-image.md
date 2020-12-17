@@ -1,1 +1,1 @@
-(![image of ronaldo] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.as.com%2Fen%2F2019%2F09%2F24%2Ffootball%2F1569310945_447431.html&psig=AOvVaw2iVuYMiWMTyKIJxqiM__Od&ust=1608325136734000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKDY8PeA1u0CFQAAAAAdAAAAABAD))
+(![image of ronaldo] (https://en.as.com/en/imagenes/2019/09/24/football/1569310945_447431_noticia_normal.jpg))
