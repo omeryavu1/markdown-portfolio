@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Playing and Watching Soccer
+2. Reading
+3. Eating
